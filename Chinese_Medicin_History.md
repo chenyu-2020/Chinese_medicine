@@ -26,3 +26,4 @@ Looking back into the history and the classics of Chinese medicine, we can concl
 
 Today, when people continue to be threatened by epidemics, we cannot but review how the antient people survived, and how Chinese medicine classics and its prestigious practitioners emerged and succeeded. Chinese medicine is not only a kind of chemist, a pharmacy, or a pill that can kill the virus, but it’s a methodology of adjusting and balancing the inner and outer environment that have been deviated. Chinese medicine stands for the strong history culture, and it reflects Chinese philosophy of treating the world and universe.
 
+## Reference<trial>
