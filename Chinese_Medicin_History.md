@@ -32,8 +32,12 @@ Today, when people continue to be threatened by epidemics, we cannot but review 
 
 ## Reference
 郭荣, & 秦华. (1987). 明清——中医发展史上的高峰时期. 云南中医学院学报.
+
 杨炜敏. (2008). 人体经络与气候变化的关系. (Doctoral dissertation, 长安大学).
+
 张志聪. (2014). 黄帝内经素问集注
 南京中医学院中医系. (1986). 黄帝内经灵枢译释.
+
 周欣. (2011). 中医药国际化的发展及趋势研究. (Doctoral dissertation, 广州中医药大学).
+
 王振华. (2003). 论中西医理论形成原理及发展规律. 中华中医药杂志, 18(8), 487-490.
