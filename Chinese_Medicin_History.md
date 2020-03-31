@@ -36,6 +36,7 @@ Today, when people continue to be threatened by epidemics, we cannot but review 
 杨炜敏. (2008). 人体经络与气候变化的关系. (Doctoral dissertation, 长安大学).
 
 张志聪. (2014). 黄帝内经素问集注
+
 南京中医学院中医系. (1986). 黄帝内经灵枢译释.
 
 周欣. (2011). 中医药国际化的发展及趋势研究. (Doctoral dissertation, 广州中医药大学).
