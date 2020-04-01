@@ -42,3 +42,7 @@ Today, when people continue to be threatened by epidemics, we cannot but review 
 周欣. (2011). 中医药国际化的发展及趋势研究. (Doctoral dissertation, 广州中医药大学).
 
 王振华. (2003). 论中西医理论形成原理及发展规律. 中华中医药杂志, 18(8), 487-490.
+
+Beijing DouWang Technology Co., Ltd. (n.d.).灵枢经. https://book.douban.com/subject/1447230/
+
+Fan, J. P., Mu, Y. P., & Wang, X. M., Wu. H. G. (2009). ACTA UNIVERSITATIS TRANDITIONIS MEDICALIS SINENSIS PHARMACOLOGIAEQUE SHANGHAI . Moxibustion Characteristics of Huangdi’s Mingtang Moxibustion Classic, 32(2), 19–22. https://www.ixueshu.com/document/c5951ac9594994eeb9e58aa751f0f9b1318947a18e7f9386.html
